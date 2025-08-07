@@ -1,5 +1,5 @@
 <h1 align="center">
-  ✨ SAINI DRM Bot ✨
+  ✨ Jai shree Krishna  ✨
 </h1>
 
 <p align="center">
